@@ -1,7 +1,7 @@
-Free-Telugu-ePUB
+Free Telugu Books
 ================
 
-Collection Of Free Telugu Books (only ePUB)
+Collection Of Free Telugu Books!
 
 =====================================================================================================================
 
